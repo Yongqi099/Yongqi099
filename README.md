@@ -1,5 +1,5 @@
-Hello, I’m Yongqi Ma
+Hello, I’m Yong Qi Ma
 
-Current undergraduate at Georgia Institute of Technology. With a focus on information and intelligence. Seeking to graduate in May 2024
+Graduate of Georgia Institute of Technology. With a focus on information and intelligence.
 
-Please reach me at yma422@gatech.edu for business.
+Please reach me at officialma099@gmail.com for business.
